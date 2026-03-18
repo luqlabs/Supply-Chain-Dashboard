@@ -108,3 +108,13 @@ Supports better sales strategy and channel optimization.
 LuqLabs
 
 <img width="1115" height="628" alt="image" src="https://github.com/user-attachments/assets/2d80814e-c359-469b-b0a9-e71d46f058f4" />
+<img width="1111" height="632" alt="image" src="https://github.com/user-attachments/assets/7c3b762e-7941-405a-976a-e99be2d3bed7" />
+<img width="1120" height="628" alt="image" src="https://github.com/user-attachments/assets/bd86f4d9-cb98-4591-bf9b-457cc530a878" />
+<img width="1115" height="633" alt="image" src="https://github.com/user-attachments/assets/63173337-3aa0-49e0-a4c7-8512bd6f0ac1" />
+<img width="1119" height="633" alt="image" src="https://github.com/user-attachments/assets/2e768e5b-9830-4d04-8a1d-9f4c288ac0e7" />
+<img width="1124" height="626" alt="image" src="https://github.com/user-attachments/assets/47db2c8c-9273-4c54-b32c-023d8b692a90" />
+
+
+
+
+
